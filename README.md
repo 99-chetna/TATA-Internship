@@ -1,6 +1,6 @@
 # TATA-Internship
+![image](https://github.com/99-chetna/TATA-Internship/assets/112334463/4244f194-d920-4594-97b4-558fef1810dd)
 
-https://akm-img-a-in.tosshub.com/businesstoday/images/story/202106/tcs_logo_1200_020621101143.jpg?size=1200:675
 
 
 
